@@ -16,6 +16,7 @@
 ![](https://i.imgur.com/7fmJ1mA.gif) **DNI** : While I do not have a.. set, DNI.. just check my Strawpage (ON LINKS) for it! Simply put: The basic DNI criteria.
 
 + A very.. VERY normal Selfshipper../sarc ![](https://i.imgur.com/zbNFAIK.gif)
++ Feel free 2 Sign [My ATABook!](https://whimsycal.atabook.org)
 
   ![](https://i.imgur.com/qc3NP59.gif) ![](https://i.imgur.com/ADEwKTE.gif)
 
