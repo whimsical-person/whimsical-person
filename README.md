@@ -12,9 +12,12 @@ $${\color{#7E4FCC}me \space deslumbras \space \color{#B82881}me \space derrumbas
 ![](https://i.imgur.com/hLcKNio.png)
 
 ![](https://64.media.tumblr.com/4769a451746bf285e162668fda8178e0/0735995cb3f6e029-94/s75x75_c1/74785632746b86804672d82076e5556023e91794.gifv) HELLO, __WORLD__ ^_^ ! ![](https://i.imgur.com/Pr4nbv5.gif)
-- ✦ ﹒ ┈ ﹕ I am not the best at approaching other folks.. but I promise I'm a pretty cool person when you meet me! ^_^" ![](https://i.imgur.com/G5QzBpI.gif)
-- ★ ﹒ ┈ ﹕ I am fine with C*H! ^O^ && I love to make friends ^u^ ![](https://i.imgur.com/G5QzBpI.gif)
-- ✦ ﹒ ┈ ﹕ I don't play PT often, soo yeah -_-" ![](https://i.imgur.com/G5QzBpI.gif)
+
+✦ ﹒ ┈ ﹕ I am not the best at approaching other folks.. but I promise I'm a pretty cool person when you meet me! ^_^" ![](https://i.imgur.com/G5QzBpI.gif)
+
+★ ﹒ ┈ ﹕ I am fine with C*H! ^O^ && I love to make friends ^u^ ![](https://i.imgur.com/G5QzBpI.gif)
+
+✦ ﹒ ┈ ﹕ I don't play PT often, soo yeah -_-" ![](https://i.imgur.com/G5QzBpI.gif)
 
 ![](https://i.imgur.com/YoaAd0V.png)
 
