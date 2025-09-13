@@ -1,8 +1,13 @@
 ### ![](https://i.imgur.com/g5AROKN.gif) DON'T STEAL ANY GRAPHICs!! /gen "-_-
 ***
+
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=whimsical-person&label=mainframe%20worms&color=BD297F&style=flat" alt="whimsical-person" /> </p>
+</p>
+
 $${\color{#B82881}no \space me \space mires \space \color{#3CB0C5}con \space esos \space ojos \space \color{#B9AC48}{\(que \space me\)}}$$
 
 ![](https://i.imgur.com/p4tBWXW.png)
+
 
 
 $${\color{#7E4FCC}me \space deslumbras \space \color{#B82881}me \space derrumbas}$$
