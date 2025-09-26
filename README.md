@@ -19,13 +19,13 @@
 
 ***
 
-　　　　　　　![](https://i.imgur.com/3BY1W03.png)
+　　　　　　　　　![](https://i.imgur.com/3BY1W03.png)
 
 <p align="center">  𓏻　i love my f/o　╱　i love my wives　◞
 <p align="center">  ⏖　i dont mind twins of kins　 ：　i do mind doubles of f/os tho　◞
 
 
- 　　　　　　　　![](https://i.imgur.com/qc3NP59.gif) ![](https://i.imgur.com/ADEwKTE.gif)
+ 　　　　　　　　　　　　　　　![](https://i.imgur.com/qc3NP59.gif) ![](https://i.imgur.com/ADEwKTE.gif)
 
 ![](https://i.imgur.com/M6s8s5y.png)
 
