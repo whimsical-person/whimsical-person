@@ -32,11 +32,6 @@
 
 ![](https://i.imgur.com/M6s8s5y.png)
 
-.
-.
-.
-
-I'm still working on this...
 
 ***
 
