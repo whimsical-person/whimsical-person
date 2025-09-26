@@ -43,7 +43,12 @@ flags ﹕ [trans](https://lgbtqia.wiki/wiki/Transgender), [omnique](https://lgbt
 
 dni ﹕ proshippers/darkshippers, homophobes/transphobes, xenophobes/racists, rcta, radqueer, basically the basic DNI stuff
 
-pony town stuff ﹕ cuddles + hiding allowed! dont copy but inspo is okay! i
+pony town stuff ﹕ cuddles + hiding allowed! dont copy but inspo is okay! i dont know what else to write here
+
+kin list ﹕ prototype (regretevator), lampert (regretevator), benny (the lego movie), brandon (brandonworks), piku (pikuniku)
+
+F/O list (romantic) ﹕ sebastian solace (pressure), griefer (blocktales), mephone4 (inanimate insanity), masquerade medic (defend the train), dee-jay (untitled elevator game), jose (baseplate civilization), shock marauder (pilgrammed), traffic and lord pwnatious "moneybags" the third (phighting!), macabre_day (the days union), radiant revival miku
+
 
 <!--
 **whimsical-person/whimsical-person** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
