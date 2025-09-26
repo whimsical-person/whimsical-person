@@ -1,6 +1,5 @@
 ***
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=whimsical-person&label=mainframe%20worms&color=BD297F&style=flat" alt="whimsical-person" /> </p>
 </p>
 
 　　　![](https://i.imgur.com/Oqg7qN6.png)
@@ -23,6 +22,8 @@
 
 <p align="center">  𓏻　i love my f/o　╱　i love my wives　◞
 <p align="center">  ⏖　i dont mind twins of kins　 ：　i do mind doubles of f/os tho　◞
+ 
+　　　　　　　　　　　　　　　　　　　　　　　　　𓎢𓎟𓎡　sign my [ata](https://whimsycal.atabook.org)book !! pls　◞
 
 
  　　　　　　　　　　　　　　　![](https://i.imgur.com/qc3NP59.gif) ![](https://i.imgur.com/ADEwKTE.gif)
