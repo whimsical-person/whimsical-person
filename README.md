@@ -12,7 +12,7 @@
 ***
 ![](https://i.imgur.com/wYgRhtL.png)
 
-　　　![](https://i.imgur.com/ZdqfbxE.png)
+　　　![](https://i.imgur.com/jv5cmon.png)
 
 <p align="center"> 　⊹　person or apollo　　﹕　　minor　&&　any prns　⊹　
 
@@ -37,7 +37,7 @@
 
 e2r ﹕hi! im person or apollo, i use a bunch of other names too!! i love to decorate and create stuff. minor and ADHD! pressure special interest/hyperfixation! sebastian solace is my beloved!! (selective-sharing/non-sharing) i kin prototype,lampert, and a few other characters! same goes for my f/o list.. i use any pronouns and im trans! twitter - sillyol_person, tumblr - sillyol-person
 
-flags ﹕ [trans](https://lgbtqia.wiki/wiki/Transgender), [omnique](https://lgbtqia.wiki/wiki/Omnique), [nebularomantic](https://lgbtqia.wiki/wiki/Nebularomantic), [queer](https://lgbtqia.wiki/wiki/Queer), [f*ggot](https://lgbtqia.wiki/wiki/F*ggot)
+flags ﹕ [trans](https://lgbtqia.wiki/wiki/Transgender), [omnique](https://lgbtqia.wiki/wiki/Omnique), [nebularomantic](https://lgbtqia.wiki/wiki/Nebularomantic), [queer](https://lgbtqia.wiki/wiki/Queer), [f*ggot](https://lgbtqia.wiki/wiki/F*ggot), [monopoly/polymono](https://lgbtqia.wiki/wiki/Monopoly)
 
 dni ﹕ proshippers/darkshippers, homophobes/transphobes, xenophobes/racists, rcta, radqueer, basically the basic DNI stuff
 
