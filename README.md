@@ -47,7 +47,7 @@ pony town stuff ﹕ cuddles + hiding allowed! dont copy but inspo is okay! i don
 
 kin list ﹕ prototype (regretevator), lampert (regretevator), benny (the lego movie), brandon (brandonworks), piku (pikuniku)
 
-F/O list (romantic) ﹕ sebastian solace (pressure), griefer (blocktales), mephone4 (inanimate insanity), masquerade medic (defend the train), dee-jay (untitled elevator game), jose (baseplate civilization), shock marauder (pilgrammed), traffic and lord pwnatious "moneybags" the third (phighting!), macabre_day (the days union), radiant revival miku
+F/O list (romantic) ﹕ sebastian solace (pressure), griefer (blocktales), finn mccool), mephone4 (inanimate insanity), masquerade medic (defend the train), dee-jay (untitled elevator game), jose (baseplate civilization), shock marauder (pilgrammed), traffic and lord pwnatious "moneybags" the third (phighting!), macabre_day (the days union), radiant revival miku, kasper / infected (regretevator)
 
 
 <!--
