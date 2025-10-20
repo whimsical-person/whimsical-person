@@ -14,7 +14,7 @@
 ***
 ![](https://i.imgur.com/wYgRhtL.png)
 
-　　　![](https://i.imgur.com/jv5cmon.png)
+　　　![](https://i.imgur.com/3UXs7Xo.png)
 
 <p align="center"> 　⊹　person or apollo　　﹕　　minor　&&　any prns　⊹　
 
