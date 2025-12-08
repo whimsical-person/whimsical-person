@@ -1,4 +1,4 @@
-<p align="center"> ac 4 pfp - scientificsatellite - Tumblr (deactivated)
+<p align="center"> ac 4 pfp - scientificsatellite - Tumblr (deactivated) ++ some info is outdated!! T_T
 
 ***
 
@@ -47,7 +47,9 @@ pony town stuff ﹕ cuddles + hiding allowed! dont copy but inspo is okay! i don
 
 kin list ﹕ prototype (regretevator), lampert (regretevator), benny (the lego movie), brandon (brandonworks), piku (pikuniku)
 
-F/O list (romantic) ﹕ sebastian solace (pressure), griefer (blocktales), finn mccool), mephone4 (inanimate insanity), masquerade medic (defend the train), dee-jay (untitled elevator game), jose (baseplate civilization), shock marauder (pilgrammed), traffic and lord pwnatious "moneybags" the third (phighting!), macabre_day (the days union), radiant revival miku, kasper / infected (regretevator)
+F/O list (romantic) ﹕ sebastian solace (pressure), griefer & finn mccool (blocktales) , mephone4 (inanimate insanity), masquerade medic (defend the train), dee-jay (untitled elevator game), jose (baseplate civilization), shock marauder (pilgrammed), traffic and lord pwnatious "moneybags" the third (phighting!), macabre_day (the days union), radiant revival miku, kasper / infected (regretevator) , jade & ordem (notoriety) , narrator (tds) , d3rlord (sfawtde) , charlie dompler (smiling friends) , tilin (the pink valley)
+
+i love minesweeper and sudoku like a mf...
 
 
 <!--
