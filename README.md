@@ -1,4 +1,4 @@
-<p align="center"> wow im on pt-awards wow . (pretty github) </p>
+<p align="center"> FORMERLY on pt-awards wow . (pretty github, sudokusweeper) </p>
 
 <p align= "center"> note: i'm so sorry if anyone viewing this page has tritanomaly/blue-yellow color blindness! scroll to bottom of the page for e2r/easy to read version!
 
